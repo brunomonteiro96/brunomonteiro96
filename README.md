@@ -7,6 +7,7 @@ My goal is to translate data patterns into actionable insights that help busines
 🤝 Connect with me
 
 💼 www.linkedin.com/in/brunompmonteiro
+
 📧 bruno.monteiro.96@gmail.com
 
 
